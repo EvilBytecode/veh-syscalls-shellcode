@@ -1,5 +1,5 @@
 # veh-syscalls-shellcode
-dm @codepulze1 on discord or [codepulze](https://t.me/codepulze) on telegram to buy VEH syscalls, ssn resolving, 4/21. (400$)
+dm @codepulze1 on discord or [codepulze](https://t.me/codepulze) on telegram to buy VEH syscalls, ssn resolving, 4/21. (400$ LTC)
 ![image](https://github.com/user-attachments/assets/0f787517-9656-42ff-8433-dfc7bf8c3ee2)
 - the avs that detect i dont even count them cuz theyre sheet (only eset counts)
 ## anyways IT BYPASSES KASPERSKY! (不管怎么说，它通过了卡斯帕斯基！)
